@@ -73,3 +73,24 @@ nanobiowave scalable Cloud Infrastructure IaaS/PaaS/SaaS infrastructure.
 
  
 
+
+nanobiowave is future startup company (in stealth mode). 
+
+  
+
+nanobiowave Ventures (Venture Capital Firm) 
+nanobiowave Capital (Private Equity Firm) 
+
+nanobiowave University (Educational Institution)
+
+nanobiowave Research (Market Research Firm) 
+
+nanobiowave Systems (Startup Company) 
+
+nanobiowave Communications (Communications Company) 
+
+nanobiowave Human Capital (Human Capital Resources) 
+
+
+nanobiowave Enterprise Architecture (Global Enterprise Architecture) 
+

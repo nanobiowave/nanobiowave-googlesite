@@ -45,5 +45,31 @@ market sectors with next generation mobile health and athletics sportwear platfo
 
 generation telecom and data center IaaS/PaaS infrastructures, regionally and globally.
 
+The nanobiowave Doctrine of transdermal medical physiology and 
+
+medical biochemistry imaging human waveform biosensor fabric 
+
+communications infrastructure plan establishes municipal, state,
+
+and federal requirements to develop and deploy consumer-wearable 
+
+transdermal medical physiology and medical biochemistry imaging 
+
+human waveform biosensor fabric realtime health intelligence sportswear 
+
+and the associated access and data center communications infrastructure 
+(e.g. 5G Wireless, http://en.wikipedia.org/wiki/IEEE_802.11 , DOCSIS 4.0, 
+
+XGPON FTTH, etc) to implement maximum industrial automation of the 
+
+Healthcare industry using realtime communications access platforms and the
+
+nanobiowave Health Intelligence Sportswear, 
+
+nanobiowave HEALTHSTATION Platform, and 
+
+nanobiowave scalable Cloud Infrastructure IaaS/PaaS/SaaS infrastructure. 
+
+
  
 
